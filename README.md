@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil Danifiquei🤫
+### Boas vindas ao meu perfil Danifiquei 🫡
 
 Meu nome é Daneila Cavalcanti
 
